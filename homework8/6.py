@@ -1,0 +1,1 @@
+# qilib bo'lmaydi
